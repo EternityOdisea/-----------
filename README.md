@@ -1,4 +1,4 @@
-# ----------- ₊More about me–
+# ----------- More about me–
 
 Name:Zara
 
