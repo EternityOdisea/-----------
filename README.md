@@ -2,7 +2,7 @@
 
 Name:Zara
 
-Likes:cats, funny people
+Likes:cats, funny people 
 
 Birthday: March 13
 
